@@ -2,4 +2,4 @@
 
 > I specialise in enabling agile teams to achieve their best work. I'm currently working for the [Australian Government](https://www.australia.gov.au/), assisting with the management and delivery of large-scale digital projects.
 
-[LinkedIn](https://www.linkedin.com/in/lachlan-murray/)
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/lachlan-murray/)!
